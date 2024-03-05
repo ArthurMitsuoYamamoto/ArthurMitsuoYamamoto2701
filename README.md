@@ -17,7 +17,7 @@
 
 
 ### Connect with me:
-[![Linkedin](https://www.linkedin.com/in/arthur-yamamoto-5767a7288/)
+[![Linkedin](https://www.linkedin.com/in/arthur-yamamoto-5767a7288/)]
 
 
 ### Languages ​​and technologies:
